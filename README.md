@@ -26,7 +26,7 @@ Debes responder con los resultados del challenge en no más de 48 horas, sabemos
 Ten por seguro de que revisaremos cuidadosamente los resultados de tu challenge y nos pondremos en contacto contigo lo antes posible. ¡Te agradecemos de antemano por postularte a la compañía y esperamos que te diviertas haciendo este challenge!
 Somos una compañía en mejora continua y queremos escuchar tus comentarios. Por favor comparte con nosotros algunas palabras sobre que te pareció el desafío o si hay algo que podamos mejorar para brindar una buena experiencia a nuestros candidatos.
 
-Si tienes alguna duda acerca del challenge, puedes enviarnos un correo a contacto@shellzero.com
+Si tienes alguna duda acerca del challenge, puedes enviarnos un correo a contacto@shellzero.com.mx
 
 ¡Suerte!
 
